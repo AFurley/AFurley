@@ -1,4 +1,4 @@
-### Hi there! 👋
+### Hi! 👋
 
 - 🔭 Studying Aerospace Engineering at Iowa State University
 - ⚡ Working as a Boeing Research Fellow
